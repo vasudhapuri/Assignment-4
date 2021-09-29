@@ -13,7 +13,7 @@ Q6 : https://www.youtube.com/watch?v=odoWNa2zcac
 
 Q7 : https://www.youtube.com/watch?v=16xoCJebsGo
 
-Q8 
+Q8 : https://www.youtube.com/watch?v=Oro9X4FQvtY
 
 Q9 : https://www.youtube.com/watch?v=ZCicx4ifr48
 
